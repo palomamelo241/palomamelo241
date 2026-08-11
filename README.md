@@ -12,4 +12,4 @@ Em construção — em breve.
 
 ## Contato
 
-_(a preencher)_
+A preencher.
