@@ -12,4 +12,5 @@ Em construção — em breve.
 
 ## Contato
 
-A preencher.
+- E-mail: [palomamelo241@gmail.com](mailto:palomamelo241@gmail.com)
+- LinkedIn: [paloma-melo-844532193](https://www.linkedin.com/in/paloma-melo-844532193)
