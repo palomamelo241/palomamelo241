@@ -1,4 +1,4 @@
-# Olá, eu sou a Paloma Melo
+# Oi, eu sou a Paloma
 
 Analista de acessos com foco em DevOps, administração de cloud e web, infraestrutura e redes.
 
